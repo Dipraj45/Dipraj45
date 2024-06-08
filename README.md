@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Dipraj45
-- 👀 I’m interested in BOOKA
+- 👀 I’m interested in BOOKS
 - 🌱 I’m currently learning BUSINESS ANALYTICS...
 - 💞️ I’m looking to collaborate on ANALYTICS PROJECTS
 - 📫 How to reach me LINKEDIN 
